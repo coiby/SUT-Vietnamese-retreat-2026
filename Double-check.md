@@ -40,3 +40,13 @@
 0:13:00.73: He said (?) he also have wisdom.
 
 0:14:47.73: All, yes.
+
+## 260820_2030 Guided Meditation
+
+0:00:46.56: But the whole life retreat is just (?) started.
+
+0:13:08.15
+
+0:22:06.85
+
+0:23:07.66
