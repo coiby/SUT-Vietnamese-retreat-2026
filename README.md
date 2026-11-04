@@ -1,5 +1,5 @@
 
-如有任何错误或改进，欢迎指出或直接提交修改。[Double-check.md](Double-check.md)也列出了本人不确定的记录。
+如有任何错误或改进，欢迎指出或直接提交修改。[Double-check.md](Double-check.md)也列出了本人不确定的字幕条目。
 
 ## 音频下载
 
