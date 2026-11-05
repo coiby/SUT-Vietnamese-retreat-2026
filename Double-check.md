@@ -30,3 +30,13 @@
 ## 260817_2030 Guided Meditation
 
 0:00:30.90: What attitude that you need to meditate?
+
+## 260819_2030 Guided Meditation
+
+0:01:59.42:
+
+0:10:20.01: But (bad?) object is object.
+
+0:13:00.73: He said (?) he also have wisdom.
+
+0:14:47.73: All, yes.
