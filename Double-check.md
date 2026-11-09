@@ -21,6 +21,10 @@
 
 0:18:42.04: Kāya?
 
+## 260815 Dhamma Talk
+
+0:02:16.90: So when this obvious intention happens, you need to recognize—also practice (?).
+
 ## 260816_2030 Guided Meditation
 
 0:03:22.73: ?
