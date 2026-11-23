@@ -35,6 +35,16 @@
 
 0:06:13.40: Memory's story line is old one
 
+## 260817 Dhamma Talk
+
+0:07:28.66: Because they not recognizing what is the finger (?), what is a wisdom.
+
+0:10:21.77: ?
+
+0:15:34.83: Wisdom wants to know what is reality (?), what, what happening, how this happening.
+
+0:30:09.82: Then wisdom and understanding what relationship.
+
 ## 260817_2030 Guided Meditation
 
 0:00:30.90: What attitude that you need to meditate?
