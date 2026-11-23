@@ -25,6 +25,10 @@
 
 0:02:16.90: So when this obvious intention happens, you need to recognize—also practice (?).
 
+## 260816 Dhamma Talk
+
+0:05:22.11: You want to go toilet, very hot, intention is very obvious. (Hot or hard?)
+
 ## 260816_2030 Guided Meditation
 
 0:03:22.73: ?
