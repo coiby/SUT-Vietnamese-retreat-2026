@@ -49,6 +49,22 @@
 
 0:00:30.90: What attitude that you need to meditate?
 
+## 260818 Dhamma Talk
+
+bojjhaṅgā -> sambojjhaṅga? e.g.
+ - 0:00:11.23: That mean is dhamma vicaya bojjhaṅgā.
+ - 0:00:39.51: The sati bojjhaṅgā, viriya bojjhaṅgā, dhamma vicaya bojjhaṅgā. 
+ - 0:00:56.65: These three bojjhaṅgā is cause.
+ - 0:01:45.08: Then samādhi bojjhaṅga, pīti bojjhaṅga, passaddhi bojjhaṅga, and upekkhā bojjhaṅga, four kinds of bojjhaṅga come.
+ - 0:03:31.53
+ - 0:04:15.18
+
+0:05:35.91: Then the mind becomes interested, he looks, he is very aware, awake, alert, and working the whole (?)—watching the process detail.
+
+0:15:30.07: Just knowing the feeling this ?.
+
+0:17:36.01
+
 ## 260819_2030 Guided Meditation
 
 0:01:59.42:
