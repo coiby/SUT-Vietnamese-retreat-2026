@@ -65,6 +65,16 @@ bojjhaṅgā -> sambojjhaṅga? e.g.
 
 0:17:36.01
 
+## 260819 Dhamma Talk
+
+0:00:35.55: If the (your) awareness loses, we try to aware again, as much as we can. 
+
+0:08:30.62: Then (?) if your awareness is there, this awareness becomes momentum.
+
+0:14:47.67: Only smell can know the nose piece (?).
+
+0:15:52.47: Then eye ear (?), uh, seeing consciousness arise.
+
 ## 260819_2030 Guided Meditation
 
 0:01:59.42:
